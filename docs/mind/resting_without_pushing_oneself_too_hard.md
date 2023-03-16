@@ -95,7 +95,7 @@ _5つ星のうち3.9_ [580個の評価](https://www.amazon.co.jp/gp/product/B07D
 [【要約・感想】がんばりすぎない休み方〜マインドフルネスのやり方と続けるポイント〜 | 読書家・読書好きの為の要約＆書評とamazon kindle unlimitedおすすめ使い方ガイド](https://jiyucho.com/ganbarisuginaiyasumikata#toc3)
 
 
-### ●
+### ●●●●●●●●●●●●●●●●●●●●●●●●●
 ### 万能薬でも魔法でもありません
 
  1. 病気やケガが治るものではありません
