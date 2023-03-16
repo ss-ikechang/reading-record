@@ -2,8 +2,11 @@
 「今、ここ、私」を実感したい！だからマインドフルネス。
 
 
-https://www.amazon.co.jp/%E3%82%B1%E3%82%A2%E3%81%99%E3%82%8B%E4%BA%BA%E3%82%82%E6%A5%BD%E3%81%AB%E3%81%AA%E3%82%8B-%E3%83%9E%E3%82%A4%E3%83%B3%E3%83%89%E3%83%95%E3%83%AB%E3%83%8D%E3%82%B9-%E3%82%B9%E3%82%AD%E3%83%BC%E3%83%9E%E7%99%82%E6%B3%95-BOOK1-%E4%BC%8A%E8%97%A4/dp/4260028405
+<img src="https://m.media-amazon.com/images/I/51zJreNKRTL._SX348_BO1,204,203,200_.jpg" alt="ケアする人も楽になる マインドフルネス & スキーマ療法" width="30%">
 
+[ケアする人も楽になる マインドフルネス&スキーマ療法 BOOK1 単行本](https://amzn.to/42fTl9j)  
+[伊藤絵美](https://www.amazon.co.jp/%E4%BC%8A%E8%97%A4-%E7%B5%B5%E7%BE%8E/e/B004LUM9YA/ref=dp_byline_cont_book_1)   
+_5つ星のうち4.2_ [59個の評価](https://www.amazon.co.jp/%E3%82%B1%E3%82%A2%E3%81%99%E3%82%8B%E4%BA%BA%E3%82%82%E6%A5%BD%E3%81%AB%E3%81%AA%E3%82%8B-%E3%83%9E%E3%82%A4%E3%83%B3%E3%83%89%E3%83%95%E3%83%AB%E3%83%8D%E3%82%B9-%E3%82%B9%E3%82%AD%E3%83%BC%E3%83%9E%E7%99%82%E6%B3%95-BOOK1-%E4%BC%8A%E8%97%A4/dp/4260028405#customerReviews)
 
 
 慢性的な”生きづらさ”に悩む看護師のマミコさんが、カウンセリングルームにやってきた。
