@@ -1,6 +1,6 @@
 # これは何？
 
-* [y-meguro](https://github.com/ss-ikechang) の読書メモです
+* [ss-ikechang](https://github.com/ss-ikechang) の読書メモです
 * コードは [ss-ikechang/reading-record](https://github.com/ss-ikechang/reading-record) にあります
 
 # 目次
